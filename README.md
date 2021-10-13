@@ -1,2 +1,2 @@
 # Public-s-pervisor
-koycak bşi bulamadjm
+Arkadaşlar 30 star aldiğinda Atlantis sunucusundaki Veronica sunucusundaki Sistemleri paylaşacagım 
